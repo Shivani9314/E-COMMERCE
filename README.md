@@ -1,1 +1,9 @@
 # E-COMMERCE
+
+#OUTPUT
+
+
+
+
+https://github.com/Shivani9314/E-COMMERCE/assets/100601939/d2637771-90b9-406e-8cd4-06041c979457
+
